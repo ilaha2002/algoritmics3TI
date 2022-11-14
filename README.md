@@ -1,1 +1,0 @@
-# algoritmics3TI
